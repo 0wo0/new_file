@@ -1,0 +1,3 @@
+# my hobby is... 
+playing drum
+야구 보기
